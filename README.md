@@ -1,1 +1,1 @@
-(˵◝ ⩊ ◜˵マ | 🍡 — i post whenever i want to but im trait hunting half the time ..so.
+(..◜ᴗ◝..) | 🍡 — i post whenever i want to but im trait hunting half the time ..so.
